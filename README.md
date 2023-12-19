@@ -53,4 +53,4 @@ This is a tool for education only, I am not responsible for any misuse
 ### Visitors :
 ![Visitor Count](https://profile-counter.glitch.me/Whomrx666/count.svg)
 
-Good luck doing ddos
+<b>Happy ddos friend : ]<b>
